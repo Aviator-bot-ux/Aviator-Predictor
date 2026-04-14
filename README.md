@@ -1,4 +1,4 @@
-# Aviator Predictor
+# Aviator Predictor (New Updates 2026)
 
 ![Aviator Predictor](https://spribe.co/assets/images/games/carousel/av-01.jpg)
 
